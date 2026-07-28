@@ -1,3 +1,8 @@
+[your name] @yourhandle
+X: @yourhandle | LinkedIn: /in/yourhandle | Discord: yourhandle#0000
+
+"why I'm here ..."
+
 Terry Anne Wajniru Mureithi @Tawmie02
 X: @terrywanji51386 | LinkedIn: linkedin.com/in/terry-anne-wanjiru-764608273 | Discord: @terry_002.
 
